@@ -48,3 +48,38 @@ headlines
 head over to 
 in less than a generation
 used to be places to
+
+
+https://www.bbc.co.uk/learningenglish/english/features/6-minute-english_2026/ep-260101
+opinions
+calm
+motivational
+something that makes us determined and enthusiastic
+heat
+an intense feeling, often anger
+open-minded
+willing to listen to and consider new ideas
+ 
+silver bullet
+a simple solution to a complicated problem
+similar
+kind of,
+tolerant
+ lack of acceptance 
+ religion and politics
+ react
+ violence
+ But some worry that it's becoming more and more common to react with violence when they disagree, than to solve disagreements together peacefully.
+ professor of behavioural science at the London School of Economics
+ emotions
+ respectfully
+ calm down
+ engaging
+experiences emotions
+dating experiment
+So, how can we be more open to getting to know people that we might disagree with?
+obvious
+ I mean, to actually just get out more and meet people because it's what political scientists think is the silver bullet.
+ tackle
+ realise
+ isn't it time you revealed the answer to your question,
