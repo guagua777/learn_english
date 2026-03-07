@@ -3,8 +3,14 @@
 听力，有选择的听，只听主线部分，忽略掉不重要的点，而不是从头到尾。
 把主线标出来，单独提出来。
 
+
+
+就是一些熟悉的词
+
+there's no better way than to read aloud.
 大声朗读
 杨振宁 
+https://www.youtube.com/shorts/8zkBmB6RMa8
 https://www.youtube.com/watch?v=9zwDQ4WTFCU&t=370s
 https://www.youtube.com/shorts/NXgLd_F3Aq0
 
@@ -20,4 +26,6 @@ We love understatement as a way of, kind of, signalling that something much more
 2. 大声朗读主线
 3. 大声读原文
 4. 听原文
+
+
 
